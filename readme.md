@@ -1,1 +1,1 @@
-Message
+Correct text
